@@ -1,4 +1,4 @@
-# 
+# secure Liquidity Bot for geckoterminal sniper bot | simulation-mode & stop-loss offers the most advanced geckoterminal sniper bot, with simulation-mode and stop-loss. Ideal for
 
 
 
